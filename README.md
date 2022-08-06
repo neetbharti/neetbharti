@@ -1,4 +1,4 @@
-### Hey there 👋
+### Hi there 👋
 
 Everyday, I get to create awesome experience. 
 
