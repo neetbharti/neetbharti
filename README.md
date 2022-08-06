@@ -1,4 +1,4 @@
-### 👋Hey everyone, I'm Neha Bharti👋
+### Hey there 👋
 
 Everyday, I get to create awesome experience. 
 
